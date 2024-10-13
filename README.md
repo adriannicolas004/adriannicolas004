@@ -1,0 +1,1 @@
+hi ! Experience as a Front End Developer in creating web pages, designing layouts and developing applications using technologies such as HTML, CSS, JavaScript, Git, Github. With knowledge in Python and PHP programming. Student in MySql database and software management for personal and professional development with real Freelancer projects.
